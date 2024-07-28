@@ -29,4 +29,11 @@
 * [《小白兔的光荣往事》漫画版连载19：不是我不明白_安南都护_新浪博客](http://blog.sina.com.cn/s/blog_66b00f6b0100vx1d.html)
 * [《小白兔的光荣往事》漫画版连载20：那年江湖联席会议那些事儿_安南都护_新浪博客](http://blog.sina.com.cn/s/blog_66b00f6b0100vz81.html)
 * [《小白兔的光荣往事》漫画版连载21：东方不亮西方亮_安南都护_新浪博客](http://blog.sina.com.cn/s/blog_66b00f6b0100w0tj.html)
+* [《小白兔的光荣往事》漫画版连载22：铁与火的南疆（上）_安南都护_新浪博客](http://blog.sina.com.cn/s/blog_66b00f6b0100w5x3.html)
+* [《小白兔的光荣往事》漫画版连载23：铁与火的南疆（中）_安南都护_新浪博客](http://blog.sina.com.cn/s/blog_66b00f6b0100w8cn.html)
+* [《小白兔的光荣往事》漫画版连载24：铁与火的南疆（下）_安南都护_新浪博客](http://blog.sina.com.cn/s/blog_66b00f6b0100wazf.html)
+* [《小白兔的光荣往事》漫画版连载25：铁与火的南疆（续1）_安南都护_新浪博客](http://blog.sina.com.cn/s/blog_66b00f6b0100wczr.html)
+* [《小白兔的光荣往事》漫画版连载26：铁与火的南疆（续完）_安南都护_新浪博客](http://blog.sina.com.cn/s/blog_66b00f6b0100we9j.html)
+* [《小白兔的光荣往事》漫画版连载27：昨天的阿富汗1_安南都护_新浪博客](http://blog.sina.com.cn/s/blog_66b00f6b0100wfvv.html)
+* [《小白兔的光荣往事》漫画版连载28：昨天的阿富汗2_安南都护_新浪博客](http://blog.sina.com.cn/s/blog_66b00f6b0100wi5n.html)
 * 
